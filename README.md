@@ -1,0 +1,2 @@
+# domaina
+sada
